@@ -1,1 +1,1 @@
-STONKS
+STONKS --> Go Up
